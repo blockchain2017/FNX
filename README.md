@@ -1,4 +1,4 @@
-# Driving Innovation In Web3 Project
+# Four Nine X Ai (FNX), Driving Innovation In Web3 Project
 
 <div align="center"><img src="https://fourninexai.com/wp-content/uploads/2025/07/goldbacked-FNX5.fw_-1.png" /><br /></div>
 <div align="center">
